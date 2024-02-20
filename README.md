@@ -1,2 +1,8 @@
-# belajar-kolaborasi
-Belajar GitHub di Dicoding sangat menyenangkan!
+# Belajar Kolaborasi
+
+<br>Nama  : Latifatul Khumairoh<br>
+<br>NRP   : 5003211032<br>
+<br>No HP : 081230063193<br>
+<br>AKU<br>
+<br>HARUS<br>
+<br>TIDUR<br>
